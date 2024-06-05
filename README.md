@@ -24,7 +24,7 @@
 
 ###
 
-<p align="left">pije se piwo i coś tam tłumacze w risk of rain 2</p>
+<p align="left">pije se kawe i coś tam tłumacze w risk of rain 2</p>
 
 ###
 
